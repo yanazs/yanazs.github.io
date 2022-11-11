@@ -1,0 +1,1 @@
+# yanazs.github.io
